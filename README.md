@@ -1,2 +1,0 @@
-# sosmy.github.io
- 
